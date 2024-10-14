@@ -12,4 +12,4 @@ and then your downloaded files will be in oiled_up_femboy\downloaded_images
 
 
 
-this tool with ♡ by FLYRY
+this tool made with ♡ by flyry
